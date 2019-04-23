@@ -1,2 +1,2 @@
 # hello-world
-hey, Learning is Living
+ hey, Its nice to be in such a good channel.
